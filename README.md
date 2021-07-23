@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @rizzler-at-kar
+- 🌱 I Build Contact Center Solutions
